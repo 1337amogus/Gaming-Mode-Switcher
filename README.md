@@ -9,4 +9,4 @@ This application can enable and disable Boost of fps in games.
 # Requiments
 Hands, Mind (maybe), PC
 
-good luck to using it :)
+good luck to using it :) (u can download it 👆 no viruses u can check it) 
